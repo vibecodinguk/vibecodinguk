@@ -23,7 +23,7 @@
 
 📫 Reach Me:
 - Twitter: [@vibecodinguk](https://twitter.com/vibecodinguk)
-- Email: vibecodinguk@proton.me
+- Email: vibecodinguk@gmail.com
 - Discord: vibecodinguk
 
 😄 Pronouns: They/Them or He/Him
